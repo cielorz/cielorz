@@ -1,4 +1,4 @@
-![orz](B5F9FAE0-2A30-4C19-B144-88710926EAFF.jpeg)
+![orz](https://raw.githubusercontent.com/cielorz/cielorz/master/B5F9FAE0-2A30-4C19-B144-88710926EAFF.jpeg)
 
 
 
